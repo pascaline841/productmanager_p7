@@ -18,7 +18,7 @@ En tant que Product Manager chez Customizely, une entreprise de produits personn
    - Définition des objectifs et du positionnement du produit pour le marché B2B.
 
 2. **Communication interne** :
-   - Création d'une [newsletter](https://www.canva.com/design/DAGOy3_bnW4/9Wm0f378rTmMmx4rn7gZNQ/view?utm_content=DAGOy3_bnW4&utm_campaign=designshare&utm_medium=link&utm_source=editor) interne pour annoncer la nouvelle fonctionnalité.
+   - Création d'une [newsletter](https://www.canva.com/design/DAGTSsUwk8g/cGYxAd1qE1T-cSfElBSdZw/view?utm_content=DAGTSsUwk8g&utm_campaign=designshare&utm_medium=link&utm_source=editor) interne pour annoncer la nouvelle fonctionnalité.
    - Utilisation du storytelling pour engager les équipes internes.
 
 3. **Stratégie marketing et planification** :
